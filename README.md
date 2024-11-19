@@ -4,7 +4,7 @@
 
 💡 Recently, I discovered my real passion lies in **Computer Science**, **Data Science**, and **Artificial Intelligence**.  
 
-🌱 I’m eager to learn, grow, and contribute to these fields.
+🌱 So I’m eager to learn, grow, and contribute to these fields.
 
 ---
 
